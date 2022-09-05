@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @duartepereira98
+- 👀 I’m interested in ...bruna.deoliveirapereira.duarte@ESCOLA.PR.GOV.BR
+- 🌱 I’m currently learning ...JAVASCRIPT E SCRATCH
+- 💞️ I’m looking to collaborate on ...LINGUAGEN
